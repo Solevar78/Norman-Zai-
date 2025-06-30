@@ -1,5 +1,4 @@
 https://github.com/Cryakl/Ultimate-RAT-Collection
 https://github.com/cve0day/RAT
 https://github.com/ionuttbara/windows-defender-remover
-https://mega.nz/file/XohiGT6A
-#wLqP6V6bvJH37ew8IDrCoEbx6iNyNF8jggUnQOubcFo
+https://www.youtube.com/watch?v=PBHyh8YBQTQ
